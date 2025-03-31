@@ -7,8 +7,13 @@
 🤔 Talk to me whenever, I am almost always available!
 
 **Extra Links:**
+
 my profile - https://james.devcreates.lol
+
 hi community - https://dsc.gg/hicommunity
+
 directpos - https://www.stratus.sbs/discord and https://www.stratus.sbs/roblox
+
 tech demo world - https://discord.gg/DzYNaRq3 and https://www.roblox.com/communities/16992429
+
 stratus - https://www.stratus.sbs
