@@ -7,7 +7,6 @@
 🤔 Talk to me whenever, I am almost always available!
 
 **Extra Links:**
-
 my profile - https://james.devcreates.lol
 
 hi community - https://dsc.gg/hicommunity
