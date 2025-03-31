@@ -6,8 +6,7 @@
 📫 If you want to check out my social medias, you can do so by going to my profile website, inspired by guns.lol! You can visit it [here](https://james.devcreates.lol).
 🤔 Talk to me whenever, I am almost always available!
 
-**Extra Links:**
-
+## 🔗 Extra links
 my profile - https://james.devcreates.lol
 
 hi community - https://dsc.gg/hicommunity
